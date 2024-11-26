@@ -1,2 +1,3 @@
 # Titanic
-https://github.com/user-attachments/assets/7f8b557e-a6b3-424d-b4a6-c81122c1daaa
+![TITANIC-FUNDO-DO-MAR-CAPSULA-TITAN-1 (1)](https://github.com/user-attachments/assets/358a78f6-8617-4eab-9812-c184d5479ed1)
+
